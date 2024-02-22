@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nate!
-- 👀 I’m interested in the Computer Industry, Software, Hardware and Service.
+- 👀 I’m interested in the Computer Industry, Software, Hardware and Customer Service.
 - 🌱 I’m currently doing reseach on AI and its affects on Society.
 - 💞️ I’m looking to collaborate on anything new and Technical.
 - 📫 How to reach me at work nathan.pugh@flowershopnetwork.com
